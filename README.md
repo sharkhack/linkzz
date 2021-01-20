@@ -1,0 +1,2 @@
+# linkzz
+Linkzz.io
